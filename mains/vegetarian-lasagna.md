@@ -50,5 +50,5 @@
 
 6. **Serve:**
    - Let the lasagna cool for 10-15 minutes before slicing.
-   - Garnish with fresh basil leaves if desired.
+   - Garnish with fresh basil leaves and some extra grated Parmesan cheese if desired.
    - Serve warm and enjoy!
