@@ -12,7 +12,6 @@
 - 1 1/2 teaspoons salt
 - 1/2 teaspoon freshly ground black pepper
 - 1/2 teaspoon ground cinnamon
-- 1/2 teaspoon ground ginger, optional
 - 1/4 to 1/2 teaspoon cayenne pepper, optional
 
 
